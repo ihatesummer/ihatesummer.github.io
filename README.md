@@ -5,4 +5,4 @@ New Engineering Bldg. 534
 ggglatrell@gmail.com
 
 ## LinkedIn
-www.linkedin.com/in/hkk534/
+[www.linkedin.com/in/hkk534/](www.linkedin.com/in/hkk534/)
