@@ -4,5 +4,5 @@ New Engineering Bldg. 534
 ## Email
 ggglatrell@gmail.com
 
-# LinkedIn
+## LinkedIn
 www.linkedin.com/in/hkk534/
