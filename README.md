@@ -2,4 +2,7 @@
 New Engineering Bldg. 534
 
 ## Email
-istackcheese@korea.ac.kr
+ggglatrell@gmail.com
+
+# LinkedIn
+www.linkedin.com/in/hkk534/
